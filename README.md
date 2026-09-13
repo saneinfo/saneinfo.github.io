@@ -1,7 +1,5 @@
 ## 4lung
-4lung is a musician and producer known for both breakcore and more recent lyric-driven music. she initially became known for breakcore and other forms of electronic music released under rawrdcore records and former aliases. her more recent lyric-driven releases are on spotify, where she has around 90k monthly listeners as of september 2026, while most of her breakcore catalog is only available on bandcamp, soundcloud, and youtube.
-
-much of her music can be found on the rawrdcore records bandcamp page, which also features releases from her former aliases.
+4lung is a musician and producer who was formerly known for making breakcore and other forms of electronic music. she has since moved toward more lyric-centric songs, while continuing to experiment with different musical styles. much of her music can be found on the rawrdcore records bandcamp page, which also features releases from her former aliases.
 
 ### kidnapping controversy
 4lung was accused of kidnapping a teenager following an incident at a rave. the allegation was false. 4lung does not know how to drive, and her former partner, maria, was the one driving the vehicle.
