@@ -32,11 +32,10 @@ people have been uploading songs claiming to have collaborated with 4lung, which
 4lung remixed an unreleased demo song by selukos called "OPEN ME UP" after he had posted samples from it publicly. she credited him by putting "ft. selukos" in the title. selukos was upset about how he was credited and had the track taken down from soundcloud and bandcamp via copyright strikes.
 
 ## major cloog
-major cloog was a youtuber who was formerly known for drawing himself and his characters killing people they disliked.
+major cloog was a youtuber who was formerly known for animating himself and his characters killing people they disliked. he created two fictional companies for his universe: cloog inc, where him and all his characters worked, and later cyber steel corp, which blew up cloog inc in the video "new competition".
 
-### cloog inc
-cloog inc was a fictional company created by major cloog where him and all his characters worked.    
-
+### characters
+angel cat: a white cat with a halo and angel wings.  
 anono: a person with a bag over their head.  
 axis: an astronaut.  
 byrit: a pear.  
@@ -45,28 +44,23 @@ christian roma / cruma: a red bathroom stall door with a top hat.
 closet monster: a red cloog with really really big teeth.  
 cultured worm (c.w.): a worm with a top hat inside a bowling ball.  
 david: a person with blond hair.  
+gotchi: a robot tamagotchi cat.  
+jax: a half human half robot inventor.  
 joe: a white stickman.  
 kevin: a red square.  
 lertas: a guy who uh, kidnaps people.  
 og cloog: the old version of cloog before he learned to animate.  
 pot person: a gray pot with a dog inside.  
 ray-man: a computer / tv-like character.  
+razorblade robot: a boxy orange/red robot.  
 sam: a murderous toaster.  
 spoonman: a devil.  
 star-man: a star who only smiles and never talks.  
+twiggler: a brown bag with horns.  
 watson: a robot policeman.  
-wiener kitty: a ridable cat who looks like a wiener.    
-there is 1 unnamed character: a yellow bucket.
-
-### cyber steel corp
-cyber steel corp was another fictional company that blew up cloog inc in the video "new competition".    
-
-angel cat: a white cat with a halo and angel wings.  
-gotchi: a robot tamagotchi cat.  
-jax: a half human half robot inventor.  
-razorblade robot: a boxy orange/red robot.  
-twiggler: a brown bag with horns.    
-there are 3 other unnamed characters: a balloon, a cat in a robot suit, and a robotic alarm spider.
+wiener kitty: a ridable cat who looks like a wiener.  
+there is 1 unnamed cloog inc character: a yellow bucket.  
+there are 3 other unnamed cyber steel corp characters: a balloon, a cat in a robot suit, and a robotic alarm spider.
 
 ### controversy
 cloog was confirmed to have been in an inappropriate relationship with a minor in the past, and he apologized to the minor when called out. while he isn't technically classified as a pedophile because he broke off the relationship before turning 18, it still led to widespread backlash. in response to this, sirsos (cloog's editor) messed around with cloog's channel, and so cloog removed his access and hid his channel, making fan archives the only way to watch his videos:  
