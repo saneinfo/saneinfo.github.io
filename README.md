@@ -1,5 +1,7 @@
 ## 4lung
-4lung is a musician and producer who was formerly known for making breakcore and other forms of electronic music. she has since moved toward more lyric-centric songs, while continuing to experiment with different musical styles. much of her music can be found on the rawrdcore records bandcamp page, which also features releases from her former aliases.
+4lung is a musician and producer known for both breakcore and more recent lyric-driven music. she initially became known for breakcore and other forms of electronic music released under rawrdcore records and former aliases. her more recent lyric-driven releases are on spotify, where she has around 90k monthly listeners as of september 2026, while most of her breakcore catalog is only available on bandcamp, soundcloud, and youtube.
+
+much of her music can be found on the rawrdcore records bandcamp page, which also features releases from her former aliases.
 
 ### kidnapping controversy
 4lung was accused of kidnapping a teenager following an incident at a rave. the allegation was false. 4lung does not know how to drive, and her former partner, maria, was the one driving the vehicle.
@@ -20,7 +22,7 @@
 4lung was accused of posting a racial slur on twitter. the post was later determined to have been fabricated using twitter's inspect element. once it became clear that 4lung had not actually made the post, the controversy was largely dropped.
 
 ### blink-182 controversy
-4lung released a remix of blink-182's "i wanna fuck a dog in the ass" under the title "dogfuckers anthem". the title initially raised eyebrows, but once people realized it was a blink-182 song, the controversy largely died down.
+4lung remixed a song by blink-182 called "I WANNA FUCK A DOG IN THE ASS" under the title "dogfuckers anthem". the title initially raised eyebrows, but once people realized it was a blink-182 song, the controversy largely died down.
 
 ### puppy lasagna controversy
 4lung's song puppy lasagna became popular, but some listeners interpreted it as being about eating or having sexual relations with a dog. the interpretation was false. the song was an unserious recording made by sampling voice messages between 4lung and her partner saying "woof woof bark bark, puppy lasagna." 4lung later stated that the song essentially meant nothing.
@@ -28,7 +30,7 @@
 ### distrokid abuse
 people have been uploading songs claiming to have collaborated with 4lung, which distrokid accepts and distributes despite 4lung not being involved. as of september 2026, spotify has one, while amazon music and deezer have five. other platforms have no known fake songs.
 
-### remix controversy
+### open me up controversy
 4lung remixed an unreleased demo song by selukos called "OPEN ME UP" after he had posted samples from it publicly. she credited him by putting "ft. selukos" in the title. selukos was upset about how he was credited and had the track taken down from soundcloud and bandcamp via copyright strikes.
 
 ## major cloog
