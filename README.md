@@ -1,16 +1,16 @@
 ## 4lung
 4lung is a musician and producer who was formerly known for making breakcore and other forms of electronic music. she has since moved toward more lyric-centric songs, while continuing to experiment with different musical styles. much of her music can be found on the rawrdcore records bandcamp page, which also features releases from her former aliases.
 
-### kidnapping allegation
+### kidnapping controversy
 4lung was accused of kidnapping a teenager following an incident at a rave. the allegation was false. 4lung does not know how to drive, and her former partner, maria, was the one driving the vehicle.
 
-### erp allegation
+### erp controversy
 4lung was accused of engaging in erp with a minor. the allegation was false. the messages were fabricated by her former partner, maria, who had access to 4lung's laptop and posted the messages through her account.
 
-### fwucky incident
+### fwucky controversy
 4lung was falsely associated with an incident involving fwucky, who joked about distributing m.a.p. pride zines at a children's playground with 4lung. 4lung was not involved in the planned distribution and immediately rejected the association.
 
-### nekozuna song
+### nekozuna controversy
 4lung received backlash for making a song with nekozuna before she was aware of the controversy surrounding her. after learning about it, 4lung asked nekozuna to remove the song, but nekozuna did not remove it. 4lung is currently working on getting a lawyer to have the song taken down.
 
 ### incest controversy
@@ -27,9 +27,6 @@
 
 ### distrokid abuse
 people have been uploading songs claiming to have collaborated with 4lung, which distrokid accepts and distributes despite 4lung not being involved. as of september 2026, spotify has one, while amazon music and deezer have five. other platforms have no known fake songs.
-
-### legacy
-the numerous controversies surrounding 4lung have led to her being described by some as "the most controversial music artist ever."
 
 ## major cloog
 major cloog was a youtuber who was formerly known for drawing himself and his characters killing people they disliked.
