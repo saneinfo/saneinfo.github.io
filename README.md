@@ -69,9 +69,6 @@ twiggler: a brown bag with horns.
 there are 3 other unnamed characters: a balloon, a cat in a robot suit, and a robotic alarm spider.
 
 ### controversy
-cloog was confirmed to have been in an inappropriate relationship with a minor in the past and he apologized when called out. while he isn't technically classified as a pedophile because he broke off the relationship before turning 18, it still led to widespread backlash.
-
-### legacy
-shortly after, sirsos (cloog's editor) messed with his channel, and so in response cloog removed his access and hid his entire youtube channel, which privated all of his videos. so now you can only watch his videos via fan archives:  
-https://odysee.com/@Cloog:f  
-https://www.youtube.com/@TheUnofficialMajorCloogArchive
+cloog was confirmed to have been in an inappropriate relationship with a minor in the past, and he apologized to the minor when called out. while he isn't technically classified as a pedophile because he broke off the relationship before turning 18, it still led to widespread backlash. in response to this, sirsos (cloog's editor) messed around with cloog's channel, and so cloog removed his access and hid his channel, making fan archives the only way to watch his videos:  
+[https://odysee.com/@Cloog:f](https://odysee.com/@Cloog:f)  
+[https://www.youtube.com/@TheUnofficialMajorCloogArchive](https://www.youtube.com/@TheUnofficialMajorCloogArchive)
