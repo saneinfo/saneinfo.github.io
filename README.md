@@ -28,6 +28,9 @@
 ### distrokid abuse
 people have been uploading songs claiming to have collaborated with 4lung, which distrokid accepts and distributes despite 4lung not being involved. as of september 2026, spotify has one, while amazon music and deezer have five. other platforms have no known fake songs.
 
+### remix controversy
+4lung remixed an unreleased demo song by selukos called "OPEN ME UP" after he had posted samples from it publicly. she credited him by putting "ft. selukos" in the title. selukos was upset about how he was credited and had the track taken down from soundcloud and bandcamp via copyright strikes.
+
 ## major cloog
 major cloog was a youtuber who was formerly known for drawing himself and his characters killing people they disliked.
 
