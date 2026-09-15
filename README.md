@@ -1,9 +1,8 @@
 ## 4lung  
-4lung is a musician and producer who has released music across a wide range of genres through 10+ aliases and 100+ albums. while she is best known for breakcore and other forms of electronic music, she has since shifted towards more lyric-centric music, while continuing to experiment with different musical styles. much of her music can be found on the rawrdcore records bandcamp page, which also features releases from her former aliases.
+4lung is a musician and producer who has released music across a wide range of genres through 10+ characters and 100+ albums. while she is best known for breakcore and other forms of electronic music, she has since shifted towards more lyric-centric music, while continuing to experiment with different musical styles. much of 4lung's music can be found on the rawrdcore records bandcamp page, which also releases from her characters.
 
-### aliases  
-- 4lung  
-- 4lungboy  
+### characters  
+- 4lung    
 - amaryllis  
 - bleak fortune  
 - blueberry sunshine  
@@ -11,7 +10,6 @@
 - gaj  
 - gay aunt jane  
 - minxmax  
-- nunchuck gun  
 - p9  
 - rat king world champion  
 - silly rama  
